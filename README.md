@@ -1,2 +1,4 @@
 # My_DTU_notes
-Notes 😎
+Ended up not doing it here lol...
+
+What was I thinking?!
